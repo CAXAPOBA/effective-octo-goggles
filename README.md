@@ -1,1 +1,1 @@
-# effective-octo-goggles
+Метаѳизика это наука# effective-octo-goggles
